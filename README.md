@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello there 👋
 
 ![angie gif](https://github.com/user-attachments/assets/c2b8101f-991e-488c-8974-bda021d732df)
 
